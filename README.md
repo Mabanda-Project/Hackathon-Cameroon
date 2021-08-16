@@ -1,1 +1,1 @@
-# Hackaton-Cameroon
+# Hackathon Cameroon
